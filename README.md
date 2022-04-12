@@ -6,5 +6,5 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: Twitter, Linkedln
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Spent my time on Drawing, Art work, Listening songs🎵
+- ⚡ Fun fact: Spend my time on Drawing, Art work, Listening songs🎵
 -->
