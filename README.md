@@ -1,6 +1,6 @@
 ### Hi, I'm Sania Firdose👋
 
-- 📖 I’m currently Studying BE at BTI
+- 📖 I’m have completed BE in CSE
 - 🌱 I’m currently learning Programming
 - 👯 I’m looking to collaborate on Youtube
 - 💬 Ask me about ...
